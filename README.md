@@ -1,12 +1,12 @@
 🫂 Hellö, I’m @DRWH2011
 
-🧠 I’m interested in interactive Art & Design!
+🧠 Interested in interactive Art & Design!
 
-🔬 I’m currently learning everything, so I can realize all my ideas!
+🔬 Currently learning everything, so I can realize all my ideas!
 
-🛸 I’m looking to collaborate on Games and Music!
+🛸 Looking to collaborate on Games and Music!
 
-📱 You can contact me over my E-Mail or WhatsApp!
+📱 You can contact me over my E-Mail!
 
 ⚙️ Pronouns: he/him
 
