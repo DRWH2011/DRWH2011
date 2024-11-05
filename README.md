@@ -1,4 +1,4 @@
-🫂 Hi, I’m @DRWH2011
+🫂 Hellö, I’m @DRWH2011
 
 🧠 I’m interested in interactive Art & Design!
 
